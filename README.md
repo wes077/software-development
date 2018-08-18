@@ -7,3 +7,4 @@ machines slowly taking over from humans
 
 
 making humans to some extent redundancy
+where is the world heading to
